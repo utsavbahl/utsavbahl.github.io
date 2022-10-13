@@ -1,6 +1,6 @@
 ## Information
 
-I am a Student at [Williams College](https://www.williams.edu/) studying Economics and Political Science. In particular, I am interested in public policy (education policy, macroeconomics policy, sustainable development policy, and rent-seeking) as well as social justice. 
+I am a 2nd year student at [Williams College](https://www.williams.edu/) studying Economics and Political Science. In particular, I am interested in public policy (education policy, macroeconomics policy, sustainable development policy, and rent-seeking) as well as social justice. 
 
 <br>
 
