@@ -12,6 +12,6 @@ I was born and raised in Geneva, Switzerland to parents who work as UN Civil Ser
 
 ## Contact Me
 Email: [ub2@williams.edu](mailto:ub2@williams.edu)  
-Instagram:  [@u_t_s_a_v____b_a_h_l)(https://www.instagram.com/u_t_s_a_v___b_a_h_l/?hl=en)  
+Instagram:  [@u_t_s_a_v____b_a_h_l](https://www.instagram.com/u_t_s_a_v___b_a_h_l/?hl=en)  
 
 
